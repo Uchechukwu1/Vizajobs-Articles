@@ -63,3 +63,7 @@ Video Editor Jobs with High Salaries in 2022 ---- https://vizajobs.com/video-edi
 Medical Sales Jobs: A Career Guide ------- https://vizajobs.com/medical-sales-jobs-a-career-guide/
 
 Vizajobs Blog ---------- https://vizajobs.com/category/vizajobs-blog/
+
+What Do Capital Goods Jobs Pay: Salary Guide 101 ----- https://vizajobs.com/what-do-capital-goods-jobs-pay-salary-guide-101/
+
+Handling Crime Scene Cleanup Jobs  ---> https://vizajobs.com/handling-crime-scene-cleanup-jobs/
